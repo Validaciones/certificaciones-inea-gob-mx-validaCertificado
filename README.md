@@ -1,0 +1,1 @@
+# certificaciones-inea-gob-mx-validaCertificado
